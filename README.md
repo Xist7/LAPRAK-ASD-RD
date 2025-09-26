@@ -1,1 +1,0 @@
-# LAPRAK-ASD-RD
